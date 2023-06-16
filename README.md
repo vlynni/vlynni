@@ -1,0 +1,2 @@
+- im vlynn!  - he/they (only use she/her if we're close!)
+- bisexual - demiboy - transmasc
