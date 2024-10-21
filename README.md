@@ -1,2 +1,1 @@
-- im vlynn!  - he/they (only use she/her if we're close!)
-- bisexual - demiboy - transmasc
+all i am is literature, and i am not able or willing to be anything else (kafka).
